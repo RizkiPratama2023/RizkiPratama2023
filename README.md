@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+- My name is Rizki Pratama, I am currently studying at SMAN 1 Julok East Aceh, Aceh.
 <!--
 **RizkiPratama2023/RizkiPratama2023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
